@@ -41,4 +41,4 @@ Once you're finished with your solution, send us an e-mail with the link to your
 
 ### Questions
 
-If anything is unclear, don't hesitate to reach out to us by e-mail at yago.lopez@gmail.com, and we will answer you as soon as possible.
+If anything is unclear, don't hesitate to reach out to us by e-mail at yago@seez.co, and we will answer you as soon as possible.

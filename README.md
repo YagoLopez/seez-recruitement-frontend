@@ -33,7 +33,7 @@ We will pay close attention to :
 
 ### Deadline
 
-We expect this exercice to be done in a cuple of days but you could ask for more time if needed.
+We expect this exercice to be done in a couple of days but you could ask for more time if needed.
 
 ### Hand-over
 
